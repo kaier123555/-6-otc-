@@ -5,5 +5,5 @@
 
 用户之前找人搭建的，  程序看了下挺不错的  代码访问速度也不错。
 
-下载地址：https://mega-file.org/
+下载地址：https://mega-file.org/hG87a
 Telegram:@iGod5
